@@ -1,1 +1,1 @@
-# monday-potato climat change
+# monday-potato climate change
